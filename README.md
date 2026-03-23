@@ -1,1 +1,1 @@
-# Pr-vacy_Pol-cy_transigo
+# Privacy_Policy_transigo
